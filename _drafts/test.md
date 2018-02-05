@@ -2,4 +2,4 @@
 
 > In the absence of truth
 
-The world is sometimes volatile. Herp.
+The world is sometimes volatile. Herp. Derp.
